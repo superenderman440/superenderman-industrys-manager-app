@@ -1,1 +1,0 @@
-# superenderman-industrys-manager-app
